@@ -45,3 +45,4 @@
 
 |
 ╰ · · ─── ·✶· ─── · ·‧₊˚✧
+<img width="500" height="500" alt="1d91d3001b2deff412c46dff621c035d" src="https://github.com/user-attachments/assets/6a9b7373-8b41-4997-b481-7500dc6ded87" />
