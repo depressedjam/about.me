@@ -18,7 +18,7 @@
 
 > ⋮ ⌗ ┆Colour(s): Blue, Red, Black
 
-> ⋮ ⌗ ┆Fandom(s): CH, COD, Marvel, FNAF
+> ⋮ ⌗ ┆Fandom(s): COD, Marvel, FNAF
 
 > ⋮ ⌗ ┆Game(s): Minecraft, Pony Town
 
