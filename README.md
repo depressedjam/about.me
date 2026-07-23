@@ -33,7 +33,8 @@
 
 > ⋮ ⌗ ┆Dislike: Bad people, weirdos, loud noise, most fandoms
 
-> ⋮ ⌗ ┆Hobbies: Making stuff, sitting on Pony Town, listening to music
+> ⋮ ⌗ ┆Hobbies: Making stuff, sitting on Pony Town, listening to music,
+learning LGBTQ+/MOGAI labels
 
 > ⋮ ⌗ ┆DM status: Ask!
 
