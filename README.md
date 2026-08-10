@@ -31,7 +31,7 @@
 
 > ⋮ ⌗ ┆Likes: Pinterest, Pepsi, rock music, plushies, crime stuff, watching TV, blue
 
-> ⋮ ⌗ ┆Dislike: Bad people, weirdos, loud noise, most fandoms
+> ⋮ ⌗ ┆Dislike: Bad people, weirdos, loud noise, unexpected physical contact
 
 > ⋮ ⌗ ┆Hobbies: Making stuff, sitting on Pony Town, listening to music,
 learning LGBTQ+/MOGAI labels
