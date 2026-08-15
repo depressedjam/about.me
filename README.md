@@ -18,7 +18,7 @@
 
 > ⋮ ⌗ ┆Colour(s): Blue, Red, Black
 
-> ⋮ ⌗ ┆Fandom(s): FNAF, COD, Marvel, JJK, The Rookie
+> ⋮ ⌗ ┆Fandom(s): FNAF, COD, Marvel, JJK, The Rookie, South Park
 
 > ⋮ ⌗ ┆Game(s): Pony Town, Minecraft, FNAF
 
