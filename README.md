@@ -3,11 +3,11 @@
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
 > ─ - ̗̀♡ About me!
 
-> ⋮ ⌗ ┆Name: Den/Pine/Peter/Yuji
+> ⋮ ⌗ ┆Name: Username
 
 > ⋮ ⌗ ┆Age range: 18-20
 
-> ⋮ ⌗ ┆Pronouns: drowsy/drowsys/drowsyself, he/they
+> ⋮ ⌗ ┆Personality: INFP-T
 
 > ⋮ ⌗ ┆Birthday: 3/25 XP
 
@@ -34,7 +34,7 @@
 > ⋮ ⌗ ┆Dislike: Bad people, weirdos, loud noise, unexpected physical contact
 
 > ⋮ ⌗ ┆Hobbies: Making stuff, sitting on Pony Town, listening to music,
-learning LGBTQ+/MOGAI labels
+learning new stuff
 
 > ⋮ ⌗ ┆DM status: Ask!
 
