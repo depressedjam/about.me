@@ -3,7 +3,7 @@
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
 > ─ - ̗̀♡ About me!
 
-> ⋮ ⌗ ┆Name: Username
+> ⋮ ⌗ ┆Name: Username, Display name, Michelle
 
 > ⋮ ⌗ ┆Age range: 18-20
 
