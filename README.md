@@ -29,7 +29,7 @@
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
 > ─ - ̗̀♡ Extras!!
 
-> ⋮ ⌗ ┆Likes: Pinterest, Pepsi, rock music, plushies, crime stuff, watching TV, blue
+> ⋮ ⌗ ┆Likes: Pinterest, Pepsi, rock music, plushies, crime stuff, watching TV, blue, Guns N' Roses
 
 > ⋮ ⌗ ┆Dislike: Bad people, weirdos, loud noise, unexpected physical contact
 
