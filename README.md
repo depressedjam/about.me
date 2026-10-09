@@ -3,7 +3,7 @@
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
 > ─ - ̗̀♡ About me!
 
-> ⋮ ⌗ ┆Name: Username, Display name, Michelle
+> ⋮ ⌗ ┆Name: Mish, Jammies, Tubbo
 
 > ⋮ ⌗ ┆Age range: 18-20
 
@@ -18,23 +18,23 @@
 
 > ⋮ ⌗ ┆Colour(s): Blue, Red, Black
 
-> ⋮ ⌗ ┆Fandom(s): FNAF, COD, Marvel, JJK, The Rookie, South Park
+> ⋮ ⌗ ┆Fandom(s): FNAF, COD, Spider-Man, JJK, The Rookie, South Park, TOP
 
-> ⋮ ⌗ ┆Game(s): Pony Town, Minecraft, FNAF
+> ⋮ ⌗ ┆Game(s): Pony Town, Animal Jam, FNAF
 
-> ⋮ ⌗ ┆Character(s): Bonnie, Spider-Man, Tubbo
+> ⋮ ⌗ ┆Character(s): Spider-Man, Ike Brovlovski, Roach (COD)
 
 ╰ · · ─── ·✶· ─── · ·‧₊˚✧
 
 ╭ · · ─── ·✶· ─── · ·‧₊˚✧
 > ─ - ̗̀♡ Extras!!
 
-> ⋮ ⌗ ┆Likes: Pinterest, Pepsi, rock music, plushies, crime stuff, watching TV, blue, Guns N' Roses
+> ⋮ ⌗ ┆Likes: Pinterest, Pepsi, rock music, plushies, blue, MCR, Cavetown
 
-> ⋮ ⌗ ┆Dislike: Bad people, weirdos, loud noise, unexpected physical contact
+> ⋮ ⌗ ┆Dislike: Bad people, weirdos, loud noise, bright images
 
 > ⋮ ⌗ ┆Hobbies: Making stuff, sitting on Pony Town, listening to music,
-learning new stuff
+learning new stuff, playing AJ with friends
 
 > ⋮ ⌗ ┆DM status: Ask!
 
